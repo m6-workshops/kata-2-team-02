@@ -11,5 +11,5 @@ Derrière un arbuste, une petite créature semble vouloir me parler, comme une s
 Étant frileux d'aventure, je vais à sa rencontre, ce personnage tout à fait singulier me dit que cette île n'a pmus connu de visiteurs depuis plusieurs années, mais il me fournit une carte qui semble mener a un trésor.
 La carte est relativement simple, il suffit de suivre le chemin sur lequel je suis pour atteindre la mine, celle ci renfermant le trésor, je me mets donc en route rapidement.
 
-Je marche sur un caillou et trebuche sur un coffre long comme un bras, elle contient une biere.
-Je sors et je decide de la boire au bord de la plage.
+Je marche sur un caillou et trébuche sur un coffre long comme un bras, elle contient une biere.
+Je sors et je décide de la boire au bord de la plage.
